@@ -1,4 +1,4 @@
-jika ada email bekas pakai github yang mati atau yang masih fresh atau tidak dipakai bisa kirim ke mbahgadget bisa lewat instagram maupun lewat wa maupun telegram
+jika ada email bekas pakai github yang mati atau yang masih fresh atau tidak dipakai bisa kirim ke mbahgadget bisa lewat instagram maupun lewat wa.
 
 instagram : @hery_flasher
 
