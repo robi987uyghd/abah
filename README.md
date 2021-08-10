@@ -2,8 +2,6 @@ jika ada email bekas pakai github yang mati atau yang masih fresh atau tidak dip
 
 instagram : @hery_flasher
 
-telegram : 082398483560
-
 whatsapp: 082398483560
 
 besok pagi akan di update jika banyak cadangan email untuk github
